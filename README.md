@@ -2,7 +2,7 @@
 
 ## 最新入口
 
-最新入口：https://sifang30.com
+最新入口：https://sifang32.com
 
 ### 使用说明
 
@@ -23,6 +23,10 @@
 官方电报 Telegram：https://t.me/sfktv120
 
 官方推特 X：https://x.com/sfktv120
+
+## 商务联系
+
+商务联系 https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
 
 ## 电报最新地址获取
 
