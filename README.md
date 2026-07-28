@@ -2,7 +2,7 @@
 
 ## 最新入口
 
-最新入口：https://sifang32.com
+最新入口：https://sifang33.com
 
 ### 使用说明
 
