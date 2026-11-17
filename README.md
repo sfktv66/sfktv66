@@ -2,7 +2,7 @@
 
 ## 最新入口
 
-最新入口：https://sifang33.com
+最新入口：https://sifang54.com
 
 ### 使用说明
 
@@ -26,7 +26,7 @@
 
 ## 商务联系
 
-商务联系 https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
+商务联系：https://t.me/NVFALAO
 
 ## 电报最新地址获取
 
